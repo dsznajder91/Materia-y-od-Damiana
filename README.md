@@ -1,2 +1,2 @@
-# Materia-y-od-Damiana
+# Materialy-od-Damiana
 Do nauki
